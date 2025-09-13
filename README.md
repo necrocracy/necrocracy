@@ -1,16 +1,27 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/24dde42c-8759-4c67-b54b-d2b78a785043) />
 
-<!--
-**HeraldedVirtue/HeraldedVirtue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+"sharks are the gods of the sea, but they lack some legs with knees."
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+⠀_ _
+⠀　
+
+
+
+
+⠀  　⠀ leviathan / ellernate   ⋮  he/him　　 　 
+
+⠀　
+
+
+
+𐙚　　m -  @xaristu ★　 ₊  ◞　
+
+ 
+ 
+ 
+ ˙　　˳　　⁺　　meow shark enthusiast 
