@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/24dde42c-8759-4c67-b54b-d2b78a785043) />
 
 
-"sharks are the gods of the sea, but they lack some legs with knees."
+you don't get how much i fucking love sharks bro 
 
 
 
@@ -13,15 +13,18 @@
 
 
 
-⠀  　⠀ leviathan / ellernate   ⋮  he/him　　 　 
+⠀  　⠀ leviathan / bluudud   ⋮  he/him　　 　 
 
 ⠀　
 
 
 
-𐙚　　m -  @xaristu ★　 ₊  ◞　
+
+
+
+𐙚　　my wife -  @chastityofsinners ★　 ₊  ◞　
 
  
  
  
- ˙　　˳　　⁺　　meow shark enthusiast 
+ ˙　　˳　　⁺　　meow. shark enthusiast. MY GODS.
