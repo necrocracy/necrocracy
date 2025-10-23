@@ -13,7 +13,7 @@ you don't get how much i fucking love sharks bro
 
 
 
-⠀  　⠀ leviathan / bluudud   ⋮  he/him　　 　 
+⠀  　⠀ mike / mafioso   ⋮  he/him　　 　 
 
 ⠀　
 
