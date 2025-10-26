@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/24dde42c-8759-4c67-b54b-d2b78a785043) />
 
 
-you don't get how much i fucking love sharks bro 
+you don't get how much i fucking love sharks bro!! 
 
 
 
@@ -13,7 +13,7 @@ you don't get how much i fucking love sharks bro
 
 
 
-⠀  　⠀ mike / mafioso   ⋮  he/him　　 　 
+⠀  　⠀ mike / spectre   ⋮  he/him　　**MINOR** 　 
 
 ⠀　
 
@@ -26,5 +26,4 @@ you don't get how much i fucking love sharks bro
 
  
  
- 
- ˙　　˳　　⁺　　meow. shark enthusiast. MY GODS.
+
