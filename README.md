@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/24dde42c-8759-4c67-b54b-d2b78a785043) />
+![Image](https://github.com/user-attachments/assets/2df67cc3-20cb-439a-829a-a4d96584f58b)
 
 
 you don't get how much i fucking love sharks bro!! 
@@ -27,3 +27,4 @@ you don't get how much i fucking love sharks bro!!
  
  
 
+no links find them
